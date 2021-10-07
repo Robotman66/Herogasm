@@ -1,0 +1,2 @@
+# Herogasm
+Blog de entretenimiento
